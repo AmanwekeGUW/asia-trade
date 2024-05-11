@@ -1,0 +1,2 @@
+# asia-trade
+Amanzhol Kuramyssovvv
